@@ -1,0 +1,1 @@
+# 1d-tugas6-ghina-aqli-syahirah
